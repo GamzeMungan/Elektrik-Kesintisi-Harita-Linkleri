@@ -1,0 +1,1 @@
+# Elektrik-Kesintisi-Harita-Linkleri
